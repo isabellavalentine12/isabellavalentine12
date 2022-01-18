@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @isabellavalentine12
-- 👀 I’m interested in everything.
-- 🌱 I’m currently learning coding, English analysis, economics, teaching, and creative writing.
+- 👀 I’m interested in many things.
+- 🌱 I’m currently learning about motors.
 - 💞️ I’m looking to collaborate on coding projects.
 - 📫 How to reach me: With your wingspan!
 
